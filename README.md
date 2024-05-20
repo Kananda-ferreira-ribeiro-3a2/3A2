@@ -2,7 +2,7 @@
 
 # Sejam todos bem vindos!
 
-![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQx6JqMACm3gL75eqO8AW3jsWrWDrHS6ct66va18x_Pzg&s)
+![](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fsearch%2Fgato-gifs&psig=AOvVaw2m4J8mAOaWJE9IFsSG2KmS&ust=1716335899776000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCMiyjde3nYYDFQAAAAAdAAAAABAE)
 
 📧 contato - Kanandafribeiro@gmail.com
 
