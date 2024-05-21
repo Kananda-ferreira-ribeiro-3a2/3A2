@@ -2,7 +2,7 @@
 
 # Sejam todos bem vindos!
 
-![](https://tenor.com/pt-BR/view/pog-pog-champ-spamming-twitching-cat-gif-19932743)
+![]([https://tenor.com/pt-BR/view/pog-pog-champ-spamming-twitching-cat-gif-19932743](https://media.tenor.com/DRd36YfJrnAAAAAi/pog-pog-champ.gif))
 
 📧 contato - Kanandafribeiro@gmail.com
 
