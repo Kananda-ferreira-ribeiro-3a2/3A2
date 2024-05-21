@@ -2,7 +2,7 @@
 
 # Sejam todos bem vindos!
 
-![]([https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fsearch%2Fgato-gifs&psig=AOvVaw2m4J8mAOaWJE9IFsSG2KmS&ust=1716335899776000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCMiyjde3nYYDFQAAAAAdAAAAABAE](https://media.tenor.com/DRd36YfJrnAAAAAe/pog-pog-champ.png))
+![]([<div class="tenor-gif-embed" data-postid="19932743" data-share-method="host" data-aspect-ratio="1.11111" data-width="100%"><a href="https://tenor.com/view/pog-pog-champ-spamming-twitching-cat-gif-19932743">Pog Pog Champ Sticker</a>from <a href="https://tenor.com/search/pog-stickers">Pog Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)
 
 📧 contato - Kanandafribeiro@gmail.com
 
