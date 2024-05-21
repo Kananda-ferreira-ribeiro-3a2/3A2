@@ -1,4 +1,4 @@
-# Este é o repositório da aluno KANANDA FERREIRA RIBEIRO 3A2
+# Este é o Repositório da Aluna KANANDA FERREIRA RIBEIRO 3A2
 
 # Sejam todos bem vindos!
 
