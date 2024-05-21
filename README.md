@@ -2,7 +2,7 @@
 
 # Sejam todos bem vindos!
 
-![](https://i.pinimg.com/originals/dd/c2/1f/ddc21f8c278a27abd4be7a0c48f72a26.gif)
+![](https://media1.tenor.com/m/DuThn51FjPcAAAAC/nerd-emoji-nerd.gif)
 
 📧 contato - Kanandafribeiro@gmail.com
 
